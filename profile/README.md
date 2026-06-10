@@ -30,7 +30,7 @@ AI transformation for B2B companies. We deploy agentic AI systems across GTM, re
 
 <br/>
 
-[unscale.ai](https://unscale.ai) &nbsp;·&nbsp; [hello@unscale.ai](mailto:hello@unscale.ai)
+[unscale.ai](https://unscale.ai) &nbsp;·&nbsp; [contact@unscale.ai](mailto:contact@unscale.ai)
 
 <br/>
 
